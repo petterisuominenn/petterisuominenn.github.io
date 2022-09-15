@@ -1,2 +1,0 @@
-# petterisuominenn.github.io
-exploring
